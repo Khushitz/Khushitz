@@ -7,9 +7,9 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/Khushitz/MAD1](https://github.com/Khushitz/MAD1)
 
-- 💬 Ask me about **Data related insights.s**
+- 💬 Ask me about **Data related insights.**
 
-- 📫 How to reach me **khushit329@gmail.com**
+- 📫 How to reach me **khushit329@gmail.com / khushi.eco2527@gipe.ac.in**
 
 - ⚡ Fun fact **I think I am funny (sometimes) and caffeine addict as well.**
 
